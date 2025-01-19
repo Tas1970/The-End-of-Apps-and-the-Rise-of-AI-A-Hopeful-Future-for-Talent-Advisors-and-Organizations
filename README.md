@@ -1,5 +1,5 @@
-#Talent Advisors in the Age of AI: Embracing the Future of Recruitment
-Satya Nadella, CEO of Microsoft, aptly stated:
+# Talent Advisors in the Age of AI: Embracing the Future of Recruitment
+## Satya Nadella, CEO of Microsoft, aptly stated:
 
 “The future of computing is about the intelligent agent. It’s no longer about apps.”
 
