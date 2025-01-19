@@ -1,6 +1,6 @@
 ![Alt Text](https://github.com/Tas1970/The-End-of-Apps-and-the-Rise-of-AI-A-Hopeful-Future-for-Talent-Advisors-and-Organizations/blob/main/1737071102206.png)
 
-[Visit GitHub](https://www.linkedin.com/pulse/end-apps-rise-ai-hopeful-future-talent-advisors-tasneem-hassan-tas--b4xhc/?trackingId=aju4GFoD1iaGfpENHCB8sw%3D%3D)
+[The End of Apps and the Rise of AI: A Hopeful Future for Talent Advisors and Organizations](https://www.linkedin.com/pulse/end-apps-rise-ai-hopeful-future-talent-advisors-tasneem-hassan-tas--b4xhc/?trackingId=aju4GFoD1iaGfpENHCB8sw%3D%3D)
 
 
 # Talent Advisors in the Age of AI: Embracing the Future of Recruitment
